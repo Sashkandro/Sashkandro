@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sashkandro
+- qq i`m @Sashkandro
 - idk what write
 
 <!---
